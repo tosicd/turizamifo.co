@@ -1,0 +1,2 @@
+# turizamifo.co
+Mojepredzece
